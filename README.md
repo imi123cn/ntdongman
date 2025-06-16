@@ -1,7 +1,7 @@
 <h2>NT动漫官网，新番在线动漫观看平台|网页版入口|下载</h2>
-<p>NT动漫是一个专注于提供高质量动漫资源的在线平台，致力于为动漫爱好者提供便捷的观看体验。其官方网站地址为：<a href="http://www.ntdm8.com/">http://www.ntdm8.com/ </a>。该网站汇集了丰富的动漫资源，包括国内外热门新番、经典动漫以及高分作品，如《鬼灭之刃》、《银魂》等，满足不同用户的多样化需求。此外，NT动漫还提供多种功能，如追新番、补旧番、离线缓存、进度管理、分集吐槽和时间线，帮助用户更好地管理自己的动漫收藏。</p>
+<p>NT动漫是一个专注于提供高质量动漫资源的在线平台，致力于为动漫爱好者提供便捷的观看体验。该网站汇集了丰富的动漫资源，包括国内外热门新番、经典动漫以及高分作品，如《鬼灭之刃》、《银魂》等，满足不同用户的多样化需求。此外，NT动漫还提供多种功能，如追新番、补旧番、离线缓存、进度管理、分集吐槽和时间线，帮助用户更好地管理自己的动漫收藏。</p>
 <p>NT动漫以简洁直观的界面设计和强大的搜索功能著称，用户可以轻松找到自己喜欢的动漫作品，并享受流畅的高清播放体验。平台还支持多模式观看，包括弹幕、评论、图片和文字功能，使用户能够与志同道合的动漫爱好者交流互动。对于喜欢个性化体验的用户，NT动漫还支持自定义界面，方便用户根据自己的喜好调整观看环境。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/5702.html" target="_blank"><strong>NT动漫最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://ntdongman.2rdh.com/" target="_blank"><strong>NT动漫最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>网站功能特点</strong></p>
